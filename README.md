@@ -11,3 +11,27 @@ You may not delete legal / administration threads on GLP. By deleting a thread, 
 Sworn Under Penalty of Perjury,
 
 Daozen
+
+
+## Public Notification
+
+https://www.godlikeproductions.com/forum1/message5214578/pg1
+
+Dear Simulation Participants... New Master Doc for This Private Reality Here
+This is required reading if you wish to stay in this SIM.
+
+[link to github.com (secure)]
+
+Rules/decrees will no longer be posted on GLP, due to persistent thread deletions.
+
+You may bookmark the thread, if you desire.
+
+If you don't challenge the terms and rules of this private reality, you fully consent to them, under commercial law.
+
+Doc will be updated over the next few weeks.
+
+That is all.
+
+Best Wishes,
+
+DaoZen
