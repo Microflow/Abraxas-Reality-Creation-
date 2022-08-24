@@ -8,9 +8,20 @@ By staying here, you consent to these rules, as written.
 
 You may not delete legal / administration threads on GLP. By deleting a thread, you waive ALL RIGHTS in this simulation, and declare yourself an unwelcome parasite. By deleting a legal / admin thread, you agree to self-annihilate. This rule retroactive one year...
 
+## Rule Two 
+
+Dan Starman / king Anu of Heeren Loo, Holland, 
+Heeren Loo staff, 
+Stephen Goedhart and his wife of Hongshulin, 
+high ranking AMC (American Movie Company) officers, 
+
+all refuse to answer pedophilia and other charges under penalty of perjury. 
+
+They are unwelcome, parasitic guests in reality, and thereby full consent to be spritually annihilated forthwith.
+
 Sworn Under Penalty of Perjury,
 
-Daozen
+DaoZen
 
 ## Ongoing Challenges
 
