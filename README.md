@@ -12,6 +12,10 @@ Sworn Under Penalty of Perjury,
 
 Daozen
 
+## Ongoing Challenges
+
+https://danstarman.vercel.app/
+
 
 ## Public Notification
 
