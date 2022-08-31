@@ -86,6 +86,12 @@ Best Wishes,
 
 DaoZen
 
+I hereby order the Imprisonment, Arrest or Death of those individuals who are trying to block my funds, and block my exit from this reality. 
+
+They refuse to negotiate. In my opinion, they are dangerous parasites who need to be removed from existence, by any means necessary.  
+
+Once we remove them, the party can slowly start. 
+
 The above represents My Soverign Will. 
 
 Daozen Abraxas-Baggins. 
