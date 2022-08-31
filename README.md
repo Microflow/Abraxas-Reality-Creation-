@@ -4,11 +4,25 @@
 
 By staying here, you consent to these rules, as written.
 
+https://www.youtube.com/watch?v=p7ZbQzDNVe8
+
+* Being a rebel's fine, but you go all the way to being brutal *
+
 # Sworn Truth
 
-I swear this truth under penalty of perjury. 
+I swear this Infinite and Immutable truth under penalty of perjury. 
 
-I do not consent to stay in this stage world any longer. 
+I am Judge and King of my own reality, or My Own Private Universe.
+
+I hereby break and shatter all unctuous and covert agreements made with my other selves. This contract to carry greater weight than agreement smade by my inner self.  
+
+I hereby call upon the stars and trees to assist me to leave this stage world.
+
+Mr Wednesday, who I think is trustworthy, honest and kind, told me...
+
+* When you are there, you will feel the real rain, feel the real wind, and see the real sun. * 
+
+Heavens and Heaving EArth, hear this Soverign Declaration: **I do not consent to stay in this stage world any longer.** 
 
 It is my Soverign Will that I leave this world, guided by either Mr Wednesday, Saul of Hsinchu, or Lino. Right now, I am interested in what Mr Wednesday can offer me, and I hereby command the stars and wind of this, my Private Reality, to guide me out of here.  
 
