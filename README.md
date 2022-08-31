@@ -77,7 +77,7 @@ DaoZen
 
 
 
-# Advice from AMC
+# Advice from GLP
 
 80734093
 
