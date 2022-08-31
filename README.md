@@ -4,6 +4,14 @@
 
 By staying here, you consent to these rules, as written.
 
+# Sworn Truth
+
+I swear this truth under penalty of perjury. 
+
+I do not consent to stay in this stage world any longer. 
+
+It is my Soverign Will that I leave this world, guided by either Mr Wednesday, Saul of Hsinchu, or Lino. Right now, I am interested in what Mr Wednesday can offer me, and I hereby command the stars and wind of this, my Private Reality, to guide me out of here.  
+
 ## Rule One
 
 You may not delete legal / administration threads on GLP. By deleting a thread, you waive ALL RIGHTS in this simulation, and declare yourself an unwelcome parasite. By deleting a legal / admin thread, you agree to self-annihilate. This rule retroactive one year...
