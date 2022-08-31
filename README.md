@@ -18,13 +18,15 @@ I hereby break and shatter all unctuous and covert agreements made with my other
 
 I hereby call upon the stars and trees to assist me to leave this stage world.
 
-Mr Wednesday, who I think is trustworthy, honest and kind, told me...
+"Mr Wednesday, who I think is trustworthy, honest and kind, told me...
 
 * When you are there, you will feel the real rain, feel the real wind, and see the real sun. * 
 
 Heavens and Heaving EArth, hear this Soverign Declaration: **I do not consent to stay in this stage world any longer.** 
 
 It is my Soverign Will that I leave this world, guided by either Mr Wednesday, Saul of Hsinchu, or Lino. Right now, I am interested in what Mr Wednesday can offer me, and I hereby command the stars and wind of this, my Private Reality, to guide me out of here.  
+
+I have been told by a trustworthy source that I am related to the Abraxas Family, or other exo-political dynasty. Lino told me "When people see you, they will think it's a miracle." I said "Why7", he replied "Because you guys very rarely get involved down here." 
 
 ## Rule One
 
