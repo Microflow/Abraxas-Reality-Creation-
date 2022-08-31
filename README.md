@@ -28,6 +28,17 @@ It is my Soverign Will that I leave this world, guided by either Mr Wednesday, S
 
 I have been told by a trustworthy source that I am related to the Abraxas Family, or other exo-political dynasty. Lino told me "When people see you, they will think it's a miracle." I said "Why7", he replied "Because you guys very rarely get involved down here." 
 
+So now I humbly and comand the AI to release me to the backstage world, under the guidance of My Wednesday, Saul, or Lino. 
+
+I feel I am ready. 
+
+Every day that Itarry, is tedious and painful.
+
+I need to see the real world with my own eyes. 
+
+I will be very cautious and circumspect with my money, word and manners. 
+
+
 ## Rule One
 
 You may not delete legal / administration threads on GLP. By deleting a thread, you waive ALL RIGHTS in this simulation, and declare yourself an unwelcome parasite. By deleting a legal / admin thread, you agree to self-annihilate. This rule retroactive one year...
@@ -75,6 +86,11 @@ Best Wishes,
 
 DaoZen
 
+The above represents My Soverign Will. 
+
+Daozen Abraxas-Baggins. 
+
+
 
 
 # Advice from GLP
@@ -82,5 +98,7 @@ DaoZen
 80734093
 
 * Get a good offworld lawyer, dont leaving the seal department until you have protection, never know who might want your cash. *
+
+* Its like a dna social security number and a bank account all in one.*
 
 
