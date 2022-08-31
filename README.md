@@ -74,3 +74,13 @@ That is all.
 Best Wishes,
 
 DaoZen
+
+
+
+# Advice from AMC
+
+80734093
+
+* Get a good offworld lawyer, dont leaving the seal department until you have protection, never know who might want your cash. *
+
+
