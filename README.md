@@ -4,6 +4,16 @@
 
 By staying here, you consent to these rules, as written.
 
+November 29th, 2023.
+
+Dear SIM participants, can you swear against this within 30 minutes?
+
+You are murderous parsites, who use my energy for your own ends, while providing nothing in return.
+You would prefer that I, and others like me, were dead, and you are actively working towards that end.
+You agree to self-annihilate immediately, and return all your soul energy to source. Upon My Soul, Daozen
+
+~O~
+
 https://www.youtube.com/watch?v=p7ZbQzDNVe8
 
 * Being a rebel's fine, but you go all the way to being brutal *
