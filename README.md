@@ -1,8 +1,14 @@
 # Abraxas-Reality-Creation
 
-## This is a Private Reality. this is the master document for this reality,
+## This is a Private Reality. This is the master document for this reality,
 
-By staying here, you consent to these rules, as written.
+By staying here, you consent to these rules, as written. These rules may not be circumvented on the inner planes. Penalty for bad faith negotiation in the inner planes is immediate forfeir of your soul and spirit. 
+
+Let it be known that I, and many others, am in this reality against my consent. This is an abject violation of our will.
+
+I call for the imprisonment, detention or annihilation of all individuals named in this document, who are compicit in my incarceration.
+
+It is my right to go "offstage". I call for the immediate annihilation of anyone trying to prevent this, and ask for mediators from a Creation to enforce this declaration.
 
 ## November 29th, 2023.
 
