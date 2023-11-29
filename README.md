@@ -16,13 +16,14 @@ By being in this reality, you also agree that.
 
 - The penalty for livestreaming my life is permanent removal for this reality.
 
-- Rents for Stephen Goedhart, AMC, Bill Milling, and all AMC employees are hereby 1 billion USD per minute.
+- SIM Rents for Stephen Goedhart, AMC, Bill Milling, and all AMC employees are hereby 1 billion USD per minute.
 
 - The penalty for using my energy is permanent removal from this reality.
 
 - The penalty for spreading news about a pandemic or fake sickness, is immediate removal from this reality.
 
-We ask the Gods of Creation to witness this. 
+We ask the Gods of Creation to witness this. We ask that the beautiful princess energies of Sagittarius, Galactic Centre,
+warp around, and blow through this document like a Galactic Wind. 
 
 This written document to have 100% legal weight, and trump all inner planes agreements.
 
