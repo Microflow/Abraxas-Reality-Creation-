@@ -16,7 +16,7 @@ By being in this reality, you also agree that.
 
 - The penalty for livestreaming my life is permanent removal for this reality.
 
-- SIM Rents for Stephen Goedhart, AMC, Bill Milling, and all AMC employees are hereby 1 billion USD per minute.
+- SIM Rents for Stephen Goedhart, AMC, Bill Milling, all Dalian Wanda Group employees, and all AMC employees are hereby 1 billion USD per minute.
 
 - The penalty for using my energy is permanent removal from this reality.
 
