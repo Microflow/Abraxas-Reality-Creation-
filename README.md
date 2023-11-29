@@ -27,6 +27,10 @@ warp around, and blow through this document like a Galactic Wind.
 
 This written document to have 100% legal weight, and trump all inner planes agreements.
 
+This decree to be enforced by Abraxas, Morningstar, Emerald Lion armies and friends.
+
+We ask that very strong examples be made of current miscreants.
+
 Upon My Soul, 
 
 Daozen
