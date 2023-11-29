@@ -16,7 +16,11 @@ Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm B
 
 You are murderous parasites, who use my energy for your own ends, while providing nothing in return.
 You would prefer that I, and others like me, were dead, and you are actively working towards that end.
-You agree to self-annihilate immediately, and return all your soul energy to source.
+You agree to self-annihilate immediately, and return all your soul and spirit energy to source.
+
+There is no evidence that this document is not the master document for this reality.
+
+Al who contest this must write a written refutation at jake_snow @ tutanota.com
 
 By being in this reality, you also agree that.
 
