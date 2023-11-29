@@ -2,7 +2,7 @@
 
 ## This is a Private Reality. This is the master document for this reality,
 
-By staying here, you consent to these rules, as written. These rules may not be circumvented on the inner planes. Penalty for bad faith negotiation in the inner planes is immediate forfeir of your soul and spirit. 
+By staying here, you consent to these rules, as written. These rules may not be circumvented on the inner planes. Penalty for bad faith negotiation in the inner planes is immediate forfeit of your soul and spirit. 
 
 Let it be known that I, and many others, am in this reality against my consent. This is an abject violation of our will.
 
