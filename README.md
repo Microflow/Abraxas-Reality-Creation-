@@ -18,6 +18,8 @@ By being in this reality, you also agree that.
 
 - SIM Rents for Stephen Goedhart, AMC, Bill Milling, all Dalian Wanda Group employees, Patrick O'Connell of AMC, and all AMC employees are hereby 1 billion USD per minute.
 
+- Anyone doing business with Stephen Goedhart, Bill Milling, Patrick O'Connell, Dalian Wanda Group and all employees to be immediately removed from this reality.
+
 - The penalty for using my energy is permanent removal from this reality.
 
 - The penalty for spreading news about a pandemic or fake sickness, is immediate removal from this reality.
