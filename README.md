@@ -1,6 +1,6 @@
 # Abraxas-Reality-Creation
 
-## This is a Private Reality
+## This is a Private Reality. this is the master document for this reality,
 
 By staying here, you consent to these rules, as written.
 
@@ -10,7 +10,23 @@ Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm B
 
 You are murderous parsites, who use my energy for your own ends, while providing nothing in return.
 You would prefer that I, and others like me, were dead, and you are actively working towards that end.
-You agree to self-annihilate immediately, and return all your soul energy to source. Upon My Soul, Daozen
+You agree to self-annihilate immediately, and return all your soul energy to source.
+
+By being in this reality, you also agree that.
+
+- The penalty for livestreaming my life is permanent removal for this reality.
+
+- Rents for Stephen Goedhart, AMC, Bill Milling, and all AMC employees are hereby 1 billion USD per minute.
+
+- The penalty for using my energy is permanent removal from this reality.
+
+We ask the Gods of Creation to witness this. 
+
+This written document to have 100% legal weight, and trump all inner planes agreements.
+
+Upon My Soul, 
+
+Daozen
 
 ~O~
 
