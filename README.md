@@ -6,7 +6,7 @@ By staying here, you consent to these rules, as written.
 
 November 29th, 2023.
 
-Dear SIM participants, can you swear against this within 30 minutes?
+Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm Bali time?
 
 You are murderous parsites, who use my energy for your own ends, while providing nothing in return.
 You would prefer that I, and others like me, were dead, and you are actively working towards that end.
