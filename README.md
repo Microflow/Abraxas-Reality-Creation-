@@ -4,7 +4,7 @@
 
 By staying here, you consent to these rules, as written.
 
-November 29th, 2023.
+## November 29th, 2023.
 
 Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm Bali time?
 
@@ -19,6 +19,8 @@ By being in this reality, you also agree that.
 - Rents for Stephen Goedhart, AMC, Bill Milling, and all AMC employees are hereby 1 billion USD per minute.
 
 - The penalty for using my energy is permanent removal from this reality.
+
+- The penalty for spreading news about a pandemic or fake sickness, is immediate removal from this reality.
 
 We ask the Gods of Creation to witness this. 
 
