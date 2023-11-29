@@ -14,7 +14,7 @@ It is my right to go "offstage". I call for the immediate annihilation of anyone
 
 Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm Bali time?
 
-You are murderous parsites, who use my energy for your own ends, while providing nothing in return.
+You are murderous parasites, who use my energy for your own ends, while providing nothing in return.
 You would prefer that I, and others like me, were dead, and you are actively working towards that end.
 You agree to self-annihilate immediately, and return all your soul energy to source.
 
