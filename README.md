@@ -10,6 +10,8 @@ I call for the imprisonment, detention or annihilation of all individuals named 
 
 It is my right to go "offstage". I call for the immediate annihilation of anyone trying to prevent this, and ask for mediators from all of My Creation to enforce this declaration.
 
+This Reality is to be shut down until Stephen Goedhart and AMC pay their debts.
+
 ## November 29th, 2023.
 
 Dear SIM participants, can you swear against this within 30 minutes, by 6:35pm Bali time?
