@@ -6,9 +6,9 @@ By staying here, you consent to these rules, as written. These rules may not be 
 
 Let it be known that I, and many others, am in this reality against my consent. This is an abject violation of our will.
 
-I call for the imprisonment, detention or annihilation of all individuals named in this document, who are complicit in my incarceration.
+I intend the imprisonment, detention or annihilation of all individuals named in this document, who are complicit in my incarceration.
 
-The price for claiming there is a virus, in the media, or as a politician, is instant death. Stephen Goedhart, Bill Milling and AMC staff especially accept that any mention of a virus in the media means instant annihilation, and removal from creation.
+The price for claiming there is a virus, in the media, or as a politician, is instant death. Stephen Goedhart, Bill Milling, AC954744 of GLP, and AMC staff especially accept that any mention of a virus or vaccines in the media means instant annihilation, and removal from creation.
 
 It is my right to go "offstage". I call for the immediate annihilation of anyone trying to prevent this, and ask for mediators from all of My Creation to enforce this declaration.
 
